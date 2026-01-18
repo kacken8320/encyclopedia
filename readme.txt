@@ -1,0 +1,1 @@
+This encyclopedia describes a fictional world and society. It is meant to be read like Wikipedia, as a neutral source of factual information.
